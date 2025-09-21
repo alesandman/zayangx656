@@ -70,8 +70,4 @@ sdq
 
 
 
-
-
-
-
-CQI97
+td9MWlQG
